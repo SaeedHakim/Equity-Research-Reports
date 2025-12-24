@@ -1,0 +1,1 @@
+This repository contains a concise one-page equity research report prepared for a selected company. The report focuses on clear structure, professional formatting, and industry-standard presentation. Key financial data is supported with relevant charts and visualizations to make insights easy to understand and well-communicated.
